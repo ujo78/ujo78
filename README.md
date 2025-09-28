@@ -3,7 +3,6 @@
 Software Developer | Software Engineer  
 Ranchi, Jharkhand, India  
 Email: rajrakshit838@gmail.com  
-Phone: +91 823500709  
 
 ---
 
